@@ -1,1 +1,3 @@
-# Avancerad_JAVA24_Camden_Griffin_Uppgift2
+## Mitt github konto blev utloggat och borttagen, så jag fick skapa ett nytt...
+
+# Avancerad_JAVA24_Camden_Griffin_Uppgift2w
